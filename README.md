@@ -1,6 +1,6 @@
 # xn--4p8h
 👓
 
-Dies ist eine Anleitung selbst eine Brille 👓 herzustellen.
+Dies ist eine Anleitung eine Brille 👓 herzustellen.
 
 Anleitung folgt.
